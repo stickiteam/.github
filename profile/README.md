@@ -1,1 +1,1 @@
-## stiki Project 👋
+## sticki Project 👋
